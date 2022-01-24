@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ajmal
+- 👀 I’m interested in making arts using codes!
+- 🌱 I’m currently learning all programming languages :)
+- 📫 How to reach me [none]
